@@ -1,10 +1,10 @@
 - 👋 Hi, I’m @BuddJunior
 - 👀 I’m interested in ... none of your business, unless it is... in which case Yes.
-- 🌱 I’m currently learning ... everything, and we all always are am is learning 
+- 🌱 I’m currently learning ... everything, and we are all constantly learning 
 - 💞️ I’m looking to collaborate on ... pretty much any script dealing with Cyber Security 
 - 📫 How to reach me ... sanjicooks@yahoo.comn
 - 😄 Pronouns: ... F That I'm a Dude why do I need pronouns? if you do thats great, but you are still you.
-- ⚡ Fun fact: ... I don't care about feeling and I have the right to my Freedom of Speech so if you don't like what 
+- ⚡ Fun fact: ... I don't care about feelings and I have the right to my Freedom of Speech so if you don't like what 
 - ⚡ I have to say then you don't have to read it because you are probably a Karen inside and really should just
 - ⚡ grow up because Life is hard enough as it is without you crying about words that have been said by someone
 - ⚡ you have no clue who they are. Get a life, ordon't get a life, but don't bother me about mine because I didn't
